@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/dcccalvin](https://github.com/dcccalvin)
 
-- 💬 Ask me about **Django**
+- 💬 Ask me about **Django** and **Aviation**
 
 - 📫 How to reach me **chumacalvin8@gmail.com**
 
