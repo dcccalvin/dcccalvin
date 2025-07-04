@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **chumacalvin8@gmail.com**
 
-- ⚡ Fun fact **I’m so passionate about aviation that people call me an avgeek. I assume it’s a compliment… right? 😂**
+- ⚡ Fun fact **I’m passionate about aviation that people call me an avgeek. I assume it’s a compliment… right? 😂**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
